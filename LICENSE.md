@@ -1,4 +1,4 @@
-# 
+# Profissional PowerToys extensões para Mac OS | Premium PowerToys extensões para PC Windows. Com registro de transacoes e ajuste de CPU — otimizado para máximo desempenho em cada plataforma.
 
 
 
